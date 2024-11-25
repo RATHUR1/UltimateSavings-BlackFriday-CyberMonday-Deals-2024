@@ -152,6 +152,11 @@ Feel free to add your app's deal below in the relevant section. Please follow th
 | 🤑  |[Mail Mastery MEGA BUNDLE](https://unapologeticih.gumroad.com/l/nyzwb)  |250 customizable email templates covering every aspect of client communication with a range of 30+ essential business documents such as invoices, proposals, and client intake guides.	  |60% OFF. Lifetime Access and Updates. Coupon Code: 60OFFMM	|
 | 💰  |[PushAlert - Web Push Notifications](https://pushalert.co/web-push-notifications-black-friday-deal?utm_campaign=twf-nikhila)  | PushAlert is a user engagement, retention and marketing automation platform which allows you to push real-time notifications to your website users on both mobile and desktop without any mobile app.	 |30% OFF on All Annual Plans. Coupon Code: Not Required	|
 | 🤑  |[	Highperformr.ai - Twitter Analytics & Scheduling Software](https://www.highperformr.ai//?ref=black_friday_deals_by_nikhil)  | Enhance your Twitter presence with Highperformr. Features include Twitter Analytics, CRM, audience building, tweet scheduling, and more.	 |Enjoy a 50% discount. No code needed, the discount auto-applies at checkout.	|
+| 🤑 | [IndieEarnr](https://unapologeticih.gumroad.com/l/indieearnr) | Boost your income with 580+ Affiliate & Referral Programs for Solopreneurs, Indie Hackers, SaaS Owners, and Creators | 60% OFF with code **60OFF** |
+| 🤑 | [HoneyPot Newsletters Database](https://unapologeticih.gumroad.com/l/ejsmjv) | HoneyPot is a database of 1100+ Beehiiv Newsletters - including details like the newsletter title, the URL/link to the publication and categories and topics covered in each publication. | 50% OFF with code **50BEEHIIV** |
+| 🤑 | [GhostHunt - Ghost.org Newsletters Database](https://unapologeticih.gumroad.com/l/sctuym) | Explore the vast details included like newsletter title, the URL/link to the publication, the topics/categories they cover, members count brackets and language. | 50% OFF with code **50GHOST** |
+| 🤑 | [SubSearchr - Substack Newsletters Database](https://unapologeticih.gumroad.com/l/subsearchr) | Discover the Substack Universe Like Never Before with publications that have a collective audience 16+ million subscribers | 50% OFF with code **50SUBSTACK** |
+
 
 
 ## <a name="other-software"></a> 💾 Other Software
@@ -160,6 +165,10 @@ Feel free to add your app's deal below in the relevant section. Please follow th
 | 🤑  |[PlaylistAI](https://playlistai.app/)  |  Create Spotify and Apple Music playlists with AI	|Get 50% off by downloading the app|
 | 💰  |[SaaS Pricing Optimizer](https://ai-pricing.co/?ref=awesomebf)  |Give your pricing page link and receive 6 tailored optimizations to boost your SaaS profit.	  |Get 70% off with the code BLACKFRIDAY70, only valid until Nov 24.|
 | 🤑  |[AI Spend](https://aispend.io/?ref=ghawesomebf23)  |Keep track of your OpenAI usage and costs with AI Spend, and never be surprised again.	  |Enjoy 50% off with this discount code BLACKFRIDAY23|
+| 🤑 | [Fuelance Freelance System](https://unapologeticih.gumroad.com/l/ktxfX) | Find Freelance Opportunities on Autopilot. Onboard Clients & Manage Projects Effortlessly. | 70% OFF with code **70OFFBF** |
+| 🤑 | [The Big Service Business Bundle](https://unapologeticih.gumroad.com/l/bsbb) | Grow your business with the all in one, unbeatable bundle. | 75% OFF with code **75BSB** |
+| 🤑 | [Notion 50+ Page Freelancer Pack](https://unapologeticih.gumroad.com/l/lpniqt) | 50+ Freelancer/ Remote Business Templates and Docs that can be saved online/downloaded in PDF/CSV/HTML  | 60% OFF with code **60OFF50** |
+
 
 
 ## <a name="places-to-list-your-black-friday-deals"></a> 🔖 Places to List Your Black Friday Deals
